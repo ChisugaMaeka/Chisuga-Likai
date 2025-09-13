@@ -1,1 +1,1 @@
-# Chisuga-Likai/千菅隸楷
+# Chisuga-Likai/千菅隶楷
